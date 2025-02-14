@@ -1,2 +1,0 @@
-# creditosMarckPrograming
-Solo para ti
